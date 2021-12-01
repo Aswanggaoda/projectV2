@@ -33,7 +33,7 @@ ownerNumber = "6213xxxxxx@c.us"
 
 If you find some bugs please contact the WhatsApp number on Contact
 
-- [INSTAGRAM](aswangga))
+- [INSTAGRAM](aswangga)
 - [WHATSAPP](https://wa.me/6287729860010)
 
 ## Getting Started
